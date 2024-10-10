@@ -7,3 +7,4 @@ Here are some ideas to get you started:
 
 ooii,boas vindas ao meu perfil!
 -->
+meu nome é Evellyn e eu estou cursando o 1 ano do ensino medio 
